@@ -24,7 +24,6 @@ The Newa have continuously accepted that children are divine beings, and Kumar t
 
 <img src = "images/sithinakha3.jpg">
 <img src = "images/sithinakha4.jpg">
-<img src = "images/sithinakha5.jpg">
 <img src = "images/sithinakha6.jpg">
 <img src = "images/sithinakha7.jpg">
 
