@@ -1,4 +1,4 @@
-## Sithi: Na:kha:
+## Sithi: Na:kha: (सिथि नख:)
 ## An ancient and scientific festival.
 
 Water is respected as a divine component instead of fair an basic utility for the inborn Newa individuals of Kathmandu. Kumar, the rain child spoken to by water drops, is accepted to drop onto the soil after many months of development within the cloud mother goddess.
@@ -15,8 +15,9 @@ It is accepted that the water asset ought to be closed for some days after clean
 
 <img src = "images/sithinakha1.jpg">
 
-
 It is accepted that the water asset ought to be closed for some days after cleaning in Sithi Nakha to stabilize the water level. When water is cleaned, it is cleaned by entering interior the burrowed wells, lakes, and boreholes, and by doing so, the underneath squanders like mud, sediment, and silt come up to the surface of the water.
+
+The Newa have continuously accepted that children are divine beings, and Kumar truly implies youthful man, or ruler. The wooden picture of Kumar housed in its Dyo Chhen within the ancient portion of Kathmandu is painted ruddy. In Newa dialect, a youthful infant is known as Hyaun Macha (<i>hyaun</i> = red, <i>macha</i> = child).
 
 <img src = "images/285396123_10223223891919880_4530750343294289693_n.jpg">
 
@@ -25,6 +26,8 @@ It is accepted that the water asset ought to be closed for some days after clean
 <img src = "images/sithinakha5.jpg">
 <img src = "images/sithinakha6.jpg">
 <img src = "images/sithinakha7.jpg">
+
+Sithi Nakha is the final day for the Newa individuals to perform their yearly Depuja, the communal revere of their clan god. The yearly cleaning day of open structures like roadside covers, sanctuary rooftops and water sources (wells, lakes, Hiti water conduits, etc.) moreover drop on this day. (pictured above)
 
 <h1>Changed times and changed stories </h1>
 
