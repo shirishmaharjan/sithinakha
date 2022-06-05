@@ -1,12 +1,32 @@
 ## Sithi: Na:kha:
 ## An ancient and scientific festival.
 
-Spot a house in Kathmandu with a rooftop or underground tank. Easy! Right? Now, spot someone cleaning them. Not so easy task, right? 
+Water is respected as a divine component instead of fair an basic utility for the inborn Newa individuals of Kathmandu. Kumar, the rain child spoken to by water drops, is accepted to drop onto the soil after many months of development within the cloud mother goddess.
 
-For Kathmanduites, either of the two kinds of tanks or both is a prerequisite. But, such tanks mushroomed only a couple of decades ago. If so, what about the time before that? 
+Sithi Nakha is one of the vital celebrations within the Newar community which is celebrated each year on the 6th day of the shinning fortnight of Jestha. According to Hindu mythology, it is said that the day is devoted to Lord Kumar Kartikeya, the primary child of Master Shiva and Goddess Parvati. Another title for the day is Kumar Shashthi. The celebration is celebrated in honor of Kumar. Thus this day is additionally known as Kumar Shasthi.
 
-People used to go to lo hitis (stone spouts) or wells or use hand pumps to get their water. More interestingly, as a way of respecting and preserving them, the Newa community always had an annual cleaning ritual. Just near the onset of the monsoon comes Sithi Nakha. This festival, also called Kumar Shashthi (dedicated to Lord Kumar, son of Ganga) marks the start of the monsoon and the end of the festival season.
+The Newar community celebrates the Sithi Nakha celebration to check the starting of the storm season by cleaning water sources such as lakes, wells, and stone gushes. Individuals moreover plan conventional flapjacks such as Bara and Chatamari as a tribute to their genealogical god. The nourishment things are not fair for taste. They are tall in carbohydrates, protein, press, etc. As the rainstorm approaches, bodies are uncovered to diverse sorts of microbes and these sorts of nourishment increment the insusceptibility of one’s body.
 
-Today is that day. Hence, perhaps, it is now a good occasion to start better taking care of water sources inside your home today.
+A inhabitant from the Newar community plans conventional Bara hotcakes in celebration of the Sithi Nakha celebration in Kathmandu, Nepal. Particularly Bara / Wo (Newari dish made of lentils) and Chatamari (Newari dishes made of rice flour) are served on this day.
+
+This Sithi Nakha celebration too highlights the significance of water source preservation and the require for clean water. Nowadays, it is standard to adore around wells, boreholes, and lakes and to clean up some time recently revere. In this way, after everybody has assembled and worshiped, the far-reaching custom of being religiously and socially compelled not to litter there all through the year is commendable.
+
+It is accepted that the water asset ought to be closed for some days after cleaning in Sithi Nakha to stabilize the water level. When water is cleaned, it is cleaned by entering interior the burrowed wells, lakes, and boreholes, and by doing so, the underneath squanders like mud, sediment, and silt come up to the surface of the water.
 
 <img src = "images/sithinakha1.jpg">
+
+
+It is accepted that the water asset ought to be closed for some days after cleaning in Sithi Nakha to stabilize the water level. When water is cleaned, it is cleaned by entering interior the burrowed wells, lakes, and boreholes, and by doing so, the underneath squanders like mud, sediment, and silt come up to the surface of the water.
+
+<img src = "images/285396123_10223223891919880_4530750343294289693_n.jpg">
+
+<img src = "images/sithinakha3.jpg">
+<img src = "images/sithinakha4.jpg">
+<img src = "images/sithinakha5.jpg">
+<img src = "images/sithinakha6.jpg">
+<img src = "images/sithinakha7.jpg">
+
+<h1>Changed times and changed stories </h1>
+
+In the ancestors' time, public ponds, wells, and taps were the only source of drinking water, so people had to keep them clean to drink clean and pure water throughout the year, but times have changed today, and most households now have their own tanks for storage of water, which has led to a decrease in the cleaning practise of wells in the past few years. Only a few popular water bodies are kept clean during Sithi Nakha, whereas other ones have been neglected. 
+
