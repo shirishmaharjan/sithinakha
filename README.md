@@ -1,4 +1,4 @@
-## Sithi Nakha, 
+## Sithi: Na:kha:
 ## An ancient and scientific festival.
 
 You can use the [editor on GitHub](https://github.com/shirishmaharjan/sithinakha/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
