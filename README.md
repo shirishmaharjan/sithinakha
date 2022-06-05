@@ -1,38 +1,10 @@
 ## Sithi: Na:kha:
 ## An ancient and scientific festival.
 
-You can use the [editor on GitHub](https://github.com/shirishmaharjan/sithinakha/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Spot a house in Kathmandu with a rooftop or underground tank. Easy! Right? Now, spot someone cleaning them. Not so easy task, right? 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+For Kathmanduites, either of the two kinds of tanks or both is a prerequisite. But, such tanks mushroomed only a couple of decades ago. If so, what about the time before that? 
 
-### Markdown
+People used to go to lo hitis (stone spouts) or wells or use hand pumps to get their water. More interestingly, as a way of respecting and preserving them, the Newa community always had an annual cleaning ritual. Just near the onset of the monsoon comes Sithi Nakha. This festival, also called Kumar Shashthi (dedicated to Lord Kumar, son of Ganga) marks the start of the monsoon and the end of the festival season.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/shirishmaharjan/sithinakha/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Today is that day. Hence, perhaps, it is now a good occasion to start better taking care of water sources inside your home today.
