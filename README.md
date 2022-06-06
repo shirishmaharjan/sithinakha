@@ -12,8 +12,6 @@ A inhabitant from the Newar community plans conventional Bara hotcakes in celebr
 
 This Sithi Nakha celebration too highlights the significance of water source preservation and the require for clean water. Nowadays, it is standard to adore around wells, boreholes, and lakes and to clean up some time recently revere. In this way, after everybody has assembled and worshiped, the far-reaching custom of being religiously and socially compelled not to litter there all through the year is commendable.
 
-It is accepted that the water asset ought to be closed for some days after cleaning in Sithi Nakha to stabilize the water level. When water is cleaned, it is cleaned by entering interior the burrowed wells, lakes, and boreholes, and by doing so, the underneath squanders like mud, sediment, and silt come up to the surface of the water.
-
 <img src = "images/sithinakha1.jpg">
 
 It is accepted that the water asset ought to be closed for some days after cleaning in Sithi Nakha to stabilize the water level. When water is cleaned, it is cleaned by entering interior the burrowed wells, lakes, and boreholes, and by doing so, the underneath squanders like mud, sediment, and silt come up to the surface of the water.
